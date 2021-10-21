@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently trying to finish college.
 - 📫 Reach me at adrijeguha37@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: **Anime** lover, open to suggestions ✌️
+- ⚡ Fun fact: **Anime** lover, open to watch suggestions ✌️
