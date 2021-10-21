@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on somethig real cool! It's pinned if interested.
+- 🌱 I’m currently trying to finish college.
+- 📫 Reach me at adrijeguha37@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: **Anime** lover, open to suggestions ✌️
