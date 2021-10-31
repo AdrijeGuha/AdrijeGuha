@@ -19,4 +19,6 @@ Here are some ideas to get you started:
 - 🌱 I’m currently trying to finish college.
 - 📫 Reach me at adrijeguha37@gmail.com
 - 😄 Pronouns: He/Him
+<!--
 - ⚡ Fun fact: *`'You will never walk alone'`*~LFC🔴 supporter |🌟| **Anime** lover, open to watch suggestions ✌️
+-->
