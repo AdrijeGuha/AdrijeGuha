@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🔭 I’m currently chilling and brainstorming for someting cool to make.
+- 🔭 I’m currently chilling and brainstorming for something cool to make.
 - 🌱 I’m currently trying to finish college.
 - 📫 Reach me at adrijeguha37@gmail.com
 - 😄 Pronouns: He/Him
