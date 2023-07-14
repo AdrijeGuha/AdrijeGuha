@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... working on something real cool! It's pinned if interested
+- 🔭 I’m currently working on ... working on something really cool! It's pinned if interested
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
@@ -16,7 +16,8 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I’m currently chilling and brainstorming for something cool to make.
-- 🌱 I’m currently trying to finish college.
+- 🌱 Trying to finish college.
+- 🌐 Way to my [LinkedIn](https://www.linkedin.com/in/adrije-guha-64890019a).
 - 📫 Reach me at adrijeguha37@gmail.com
 - 😄 Pronouns: He/Him
 <!--
