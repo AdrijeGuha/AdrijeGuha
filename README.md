@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently chilling and brainstorming for something cool to make.
 - 🌱 Trying to finish college.
-- 🌐 Way to my [LinkedIn](https://www.linkedin.com/in/adrije-guha-64890019a){:target="_blank"}.
+- 🌐 Way to my [LinkedIn](https://www.linkedin.com/in/adrije-guha-64890019a/).
 - 📫 Reach me at adrijeguha37@gmail.com
 - 😄 Pronouns: He/Him
 <!--
